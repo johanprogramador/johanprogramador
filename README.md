@@ -75,6 +75,6 @@
 
 - 📧 **tuemail@dominio.com**  
 - 💼 [LinkedIn](https://www.linkedin.com/)  
-- 📍 Manizales, Caldas – Colombia  
+- 📍 Tulua, valle del cauca – Colombia  
 
 ---
